@@ -9,3 +9,6 @@ I'd rather eat junk food... : :vampire_woman: <br>
 L'Étrange Noël de monsieur Jack <br>
 Trying to push when I should pull... I feel like a gym bro :muscle:
 
+If a butterfly flip its wings in one part of the world,
+it is able to cause storm in another part
+Sounds weird right ?
