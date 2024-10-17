@@ -6,5 +6,6 @@ I'd rather eat junk food... : :vampire_woman: <br>
 
 :musical_note: cha cha cha :musical_note:
 
-L'Étrange Noël de monsieur Jack
+L'Étrange Noël de monsieur Jack <br>
+Trying to push when I should pull... I feel like a gym bro :muscle:
 
